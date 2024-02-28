@@ -8,6 +8,11 @@ de niño viendo la serie con mi papá :man:
 Ademas de esto la serie es bastante entretenida, muchos capitulos son muy buenos y atrapan la atencion con villanos poderosos
 y personajes con los que es facil encariñarse :bat:
 
+En resumen
+1. le tengo cariñño
+2. tiene buenos personajes
+3. es atrapante 
+
 ![Imagen de ejemplo de la serie añadida desde myCast, de Batman utilizando un gancho para elevarse por los aires y lanzando un batibumerán mientras es rodeado por murcielagos](https://assets.mycast.io/posters/the-batman-2004-series-live-action-fan-casting-poster-12847-large.jpg?1563872154)
 
 Para mas informacion de la serie se puede visitar esta web
